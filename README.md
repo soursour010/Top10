@@ -60,7 +60,7 @@
 
 支持 Clash、Shadowrocket、Stash、Surge、Quantumult X 等多种流行订阅软件。
 
-付款方式支持支付宝，不满意24h可退款。
+付款方式支持支付宝，不满意24h可退款。年付69折优惠码：year69
 
 **官网:** [**点击注册** ](https://affgo.cc/ewan)
 
