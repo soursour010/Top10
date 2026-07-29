@@ -60,7 +60,7 @@
 
 支持 Clash、Shadowrocket、Stash、Surge、Quantumult X 等多种流行订阅软件。
 
-付款方式支持支付宝，不满意24h可退款。年付69折优惠码：year69
+付款方式支持支付宝，不满意24h可退款。年付69折优惠码：**year69**
 
 **官网:** [**点击注册** ](https://affgo.cc/ewan)
 
@@ -117,15 +117,15 @@ SS协议IEPL全专线，流媒体全解锁。
 
 **官网:** [**点击注册** ](https://affgo.cc/jife)
 
-### Cyber
+### CYMNet
 
 广东落地 IEPL 内网专线抗封锁。
 
 支持流媒体解锁，**不限设备数**。
 
-基础餐每月最低18/月，提供不限时按量计费流量包。
+注册赠送3G试用流量，体验满意再订购。
 
-**官网:** [**点击注册** ](https://affgo.cc/cybg)
+**官网:** [**点击注册** ](https://affgo.cc/cnet)
 
 ### 3fanCloud
 
