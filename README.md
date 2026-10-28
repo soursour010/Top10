@@ -7,8 +7,7 @@
 
 我推荐的翻墙机场节点梯子都是自己亲身付费用过的（但部分只月付过未长期用）。不像别人一样只为赚返佣，连质量都不管不顾，更有甚者为了赚钱楞吹谁家好，最后还跑路了(**2026年机场跑路事件频发**)
 
-<img width="800" height="450" alt="image" src="https://github.com/user-attachments/assets/6bcb298b-2990-4b0b-be18-150ead9081fe" />
-
+![](https://discuss.logseq.com/uploads/default/original/3X/b/d/bd7bdf0a2d1e36aa6191e06f80db198102a4208f.jpeg)
 
 
 **在选择翻墙机场梯子有以下原则供大家参考：**
